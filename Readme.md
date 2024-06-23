@@ -12,4 +12,4 @@ I am a passionate and skilled web developer and a dedicated innovative blockchai
 - Learn about my blockchain services
 - Discover how I can help you leverage blockchain technology to transform your business
 
-Let's connect, collaborate gitand build the future of decentralized solutions together!
+Let's connect, collaborate and build the future of decentralized solutions together!
